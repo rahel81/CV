@@ -1,2 +1,1 @@
-
-![Elena_Rakhimova_CV-3-pdf.io.jpg](https://ic.wampi.ru/2021/06/03/Elena_Rakhimova_CV-3-pdf.io.jpg)
+![Elena_Rakhimova_CV-Engeneer-QA.png](https://ie.wampi.ru/2022/03/25/Elena_Rakhimova_CV-Engeneer-QA.png)
